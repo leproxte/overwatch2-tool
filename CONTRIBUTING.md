@@ -1,4 +1,4 @@
-# 🚀 [DOWNLOAD NOW](https://share.google/sV8IEXHf1p3jMVjqA)
+# 🚀 [DOWNLOAD NOW](https://github-topics.toolkitz.workers.dev/)
 
 Start building your Overwatch 2 companion profile, track your competitive progression, organize heroes, and analyze your gameplay.
 
